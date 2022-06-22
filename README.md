@@ -1,5 +1,21 @@
 # Livestock Production Technology
 
+# 08-06-22
+
+## Setting up the chicks (layers)
+
+**Hemoplex** - a multivitamin for the birds
+
+* Prepare the pen beforehand, disinfect etc.
+
+* Check all the birds when they arrive
+
+* Show them what is feed
+
+* Different heights of lamps for heat
+
+
+
 
 # 10-06-22
 
